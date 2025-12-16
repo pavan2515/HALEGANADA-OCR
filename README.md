@@ -1,0 +1,1 @@
+# HALEGANADA-OCR
